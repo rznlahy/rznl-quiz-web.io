@@ -1,1 +1,0 @@
-# rznl-quiz-web.io
